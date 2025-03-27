@@ -1,6 +1,7 @@
-## Hi, I'm Aniket ✨
+## Hi, I'm Aniket Tiwari ✨
 
 🧠 A Data Enthusiast <br>
+🎓 Final Year BCom Honours Student 
 
 
 ## 🌐 Socials:
