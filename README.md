@@ -1,6 +1,6 @@
 ## Hi, I'm Aniket Tiwari ✨
 
-🧠 A Data Enthusiast <br>
+🧠 A Data Science Professional and an Enthusiast for cybersecurity and ethical hacking. <br>
 🎓 Final Year BCom Honours Student 
 
 
